@@ -9,3 +9,4 @@
 ## basic knowledge of English
 ## great desire to enter the IT sphere
 ## assiduity
+## responsibility
