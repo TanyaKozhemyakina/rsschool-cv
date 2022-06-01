@@ -1,5 +1,5 @@
 # TanyaKozhemyakina
-## Phone number 80291088385
+## Phone number +375291088385
 ### Native country Belarus, Gomel
 ### native language russian
 ### I have no experience in IT
